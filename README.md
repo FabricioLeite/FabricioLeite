@@ -1,1 +1,1 @@
-🧑🏻‍💻 Software developer sinsce 2009
+🧑🏻‍💻 Desenvolvedor de software desde 2009
